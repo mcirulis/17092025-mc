@@ -4,3 +4,6 @@ mani sauc cirulis
 d
 5rind
 6rinda
+xtrs6is,7di
+=
+
